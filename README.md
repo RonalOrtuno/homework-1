@@ -38,3 +38,8 @@ that I enjoyed doing. I did dance for all 4 years in Highschool. I would choregr
 along side my classmates. I attempted to take a dance course when I was still attening Fullerton College but sadly
 the class got canceled due to not enough students being enrolled. I want to take another dance course in the future.
 Hopefully CSUF has dance courses that actually get full.
+
+Final Commit: I think this is the final paragraph needed for the commit. I'm not sure what "commits" are. From my 
+understanding, commits are like wave points? I see them as like, save points that tell the editor or maybe the 
+professor where the user saved their file or significant changes? I'm still wondering why I had to do 10 commits
+since it seems like a lot and a little tideous but whatever. 
