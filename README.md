@@ -32,3 +32,9 @@ started listening to her music when I was in my freshman year of Highschool. I h
 song for my dance piece and her song Runaway was the one that caught my attention. Second place would be 
 Doja Cat. I love her as a person and her music. She recently released a song called Jealous Type. If this is
 being read, you should definitely give it a listen. 
+
+Dancing in Highschool: speaking of dance, I should talk about my time dancing in Highschool since it's something
+that I enjoyed doing. I did dance for all 4 years in Highschool. I would choregraph dance pieces and perform them
+along side my classmates. I attempted to take a dance course when I was still attening Fullerton College but sadly
+the class got canceled due to not enough students being enrolled. I want to take another dance course in the future.
+Hopefully CSUF has dance courses that actually get full.
