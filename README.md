@@ -26,3 +26,9 @@ Favorite Video Game: I'm a chronic league of legends player. I have a severe add
 game. I rage but I can't get enough of it. Whenever I win I get a sense of being better than my opponents. 
 I've tried games like Overwatch 2 and Marval Rivals but neither of those give me a sense of satisfaction like 
 League 
+
+Favorite Artist: I have two currently that are my top favorite music artist. Number one would be AURORA. I first
+started listening to her music when I was in my freshman year of Highschool. I had to pick a contemporary
+song for my dance piece and her song Runaway was the one that caught my attention. Second place would be 
+Doja Cat. I love her as a person and her music. She recently released a song called Jealous Type. If this is
+being read, you should definitely give it a listen. 
