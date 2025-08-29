@@ -16,3 +16,8 @@ penalized for failure to commit frequently as I do my work.
 Academic Career: My academic career had been on a steady pace. I just transfered from fullerton collge to CSUF 
 and im slowly adjusting to the new campus. I've been thinking about changing my major from Computer Science to 
 Cybersecurity since the paths are interchangable. I'll see how this semster goes and i'll reconsider if needed. 
+
+Favorite Food: I'd say my favorite food is sushi. I didn't really like it when I was younger but as I got 
+older I tried suhsi again and I fell in love. Now I can eat any kind of sushi rolls. My favorite kind are
+the rolls that have raw fish, anything raw fish is delicious. no rice rolls are also really realy good. I'm 
+feening just thinking about sushi right now tbh
